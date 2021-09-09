@@ -5,7 +5,7 @@
 Je ne sais pas si on peux considérer ça comme du multimédia, mais comme premier lien j'ai choisis [Ubisoft](https://www.ubisoft.com/en-us/). En effet, depuis jeune âge je suis un grand fan de Ubisoft. Autant que ce sois pour leur jeux vidéo ou leur site web. Il m'inspire beaucoup et est très bien développé.![](https://s.dou.ua/storage-files/ubisoft-1400.jpg)
 
 ### Lien 2 
-
+Pour mon deuxième lien, j'ai choisis le site de [Sony Vegas Pro](https://www.vegascreativesoftware.com/ca/vegas-pro/). J'ai choisis ce site car je suis passionnés par le montage vidéo. En effet, je fais du montage depuis maintenant plus de 6 ans. C'est actuellement mon emploi ''étudiant'' mais j'aimerais faire de cette passion un métier. La plupart des montages que je fais sont sur le jeu [Fortnite] (https://www.epicgames.com/fortnite/en-US/home?sessionInvalidated=true). Je fais des vidéos pour plusieurs joueurs et je suis rémunéré pour ces vidéos. ![](https://4.img-dpreview.com/files/p/E~C480x0S1440x1080T1200x900~articles/6120107436/Screen7_Pro_Color_VectorScope_.png)
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  
 

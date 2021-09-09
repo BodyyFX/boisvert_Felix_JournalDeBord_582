@@ -2,9 +2,9 @@
 ## Présentation des liens
 
 ### Lien 1 
-Je ne sais pas si on peux considérer ça comme du multimédia, mais comme premier lien j'ai choisis [Ubisoft](https://www.ubisoft.com/en-us/).
+Je ne sais pas si on peux considérer ça comme du multimédia, mais comme premier lien j'ai choisis [Ubisoft](https://www.ubisoft.com/en-us/). En effet, depuis jeune âge je suis un grand fan de Ubisoft. Autant que ce sois pour leur jeux vidéo ou leur site web. Il m'inspire beaucoup et est très bien développé.![GitHub Logo](/images/ubisoft.jpeg)
+
 ### Lien 2 
-Expliquer pourquoi vous avez choisi ce lien.
 
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  

@@ -7,7 +7,7 @@ Je ne sais pas si on peux considérer ça comme du multimédia, mais comme premi
 ### Lien 2 
 Pour mon deuxième lien, j'ai choisis le site de [Sony Vegas Pro](https://www.vegascreativesoftware.com/ca/vegas-pro/). J'ai choisis ce site car je suis passionnés par le montage vidéo. En effet, je fais du montage depuis maintenant plus de 6 ans. C'est actuellement mon emploi ''étudiant'' mais j'aimerais faire de cette passion un métier. La plupart des montages que je fais sont sur le jeu [Fortnite](https://www.epicgames.com/fortnite/en-US/home?sessionInvalidated=true). Je fais des vidéos pour plusieurs joueurs et je suis rémunéré pour ces vidéos. ![](https://4.img-dpreview.com/files/p/E~C480x0S1440x1080T1200x900~articles/6120107436/Screen7_Pro_Color_VectorScope_.png)
 ### Lien 3 
-Expliquer pourquoi vous avez choisi ce lien.  
+![](<iframe width="560" height="315" src="https://www.youtube.com/embed/-AnN_Xg2Nps" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)  
 
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 

@@ -2,8 +2,7 @@
 ## Présentation des liens
 
 ### Lien 1 
-Expliquer pourquoi vous avez choisi ce lien. En quoi pourrait-il contribuer à votre démarche artistique? Pourquoi vous intéresse-t-il? Écrire 2 à 3 lignes par lien. 
-
+Je ne sais pas si on peux considérer ça comme du multimédia, mais comme premier lien j'ai choisis [Ubisoft](https://www.ubisoft.com/en-us/).
 ### Lien 2 
 Expliquer pourquoi vous avez choisi ce lien.
 

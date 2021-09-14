@@ -3,7 +3,7 @@
 ### Emploi 1 - Ubisoft
 Mon premier emploi est Ubisoft. J'ai choisis ce job car chaque jour est un nouveau défi, nouveau projet, etc. J'aime beaucoup les jeux vidéo et je crois que ce job pourrait vraiment me plaire. Ensuite, plusieurs sites disent comme quoi l'entraide entre les collègues ainsi que l'atmosphère sont vraiment cool. Chez Ubisoft, il créer des jeux vidéos comme Rainbow Six Siege ou encore The Division. Le point qui m'intéresse dans ce métier est de travailler sur des jeux et les développer avec l'immense équipe. Le seul point négatif est que leur locaux sont à Montréal donc beaucoup de trafic.
 
-### Emploi 2 - Mnteur Vdéo
+### Emploi 2 - Monteur Vdéo
 Le deuxième emploi que j'ai choisis est monteur vidéo. C'est un emploi qui me passiones car je fais du montage depuis plus de 6 ans maintenant. Le but d'un monteur vidéo est de combiner plusieurs clips ensemble pour les monter et ensuite avoir un rendu d'une vidéo de bonne qualité avec des effets ou sans effets. Par la suite, un monteur peux travailler dans une boite ou encore comme travailleur autonome. Pour pratiquer ce métier, il faut avoir les connaissances requises avec les logiciel Adobe AE ou PR (au moins 1 an d'expérience). Le seul défault est peut être le salaire qui n'est pas super haut au début.
 
 ### Emploi 3 - Graphiste
